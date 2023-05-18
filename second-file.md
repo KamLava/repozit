@@ -1,1 +1,1 @@
-bay, bay, bay!
+go, go, go!
